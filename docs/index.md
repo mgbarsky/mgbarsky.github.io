@@ -1,4 +1,4 @@
-
+![https://github.com/mgbarsky](assets/images/image001.jpg)
 ## Marina Barsky
 ### Visiting Professor of Computer Science
 
