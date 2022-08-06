@@ -1,5 +1,5 @@
 
-### Visiting Professor od Computer Science
+### Visiting Professor of Computer Science
 
 
 
